@@ -3,6 +3,9 @@
 - estou na main
 - fiz uma alteração no remoto
 
+![alt text](<https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDRpaTM0eGxtaHFhNnBtdTQ5bHlza2p3eHc4b2loNmdnMjZqZWYxNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/rLwLruVI73R5sBg7mf/giphy.gif>)
+
+
 🍓🍓🍓🍓🍓🍓🍓🍓🍓🍓
 
 Moranguinho, Moranguinho
